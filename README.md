@@ -1,4 +1,4 @@
-## Hi !! I'm the Rae Taylor fictionkin who's usually at spawn writing fics :^) 
+## Hi !! I'm a Rae Taylor kin and I'm often at spawn unless I'm not :^) 
 <em>A.K.A. Red Otto Mozer, Shame Kisser, This Year, and others.</em><br />
 Usually in the Safe server bc 18+ is smaller in size and I don't often go there unless too many people are in my favorite spot at spawn.<br />
 <br />
