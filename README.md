@@ -1,4 +1,4 @@
-## Hi !! I'm a Rae Taylor kin (among others) and I'm often at spawn... unless I'm not :^) 
+## Hi !! I'm a Rae Taylor kin (among others) and I'm often at Spawn or Roblox area :^)
 <em>A.K.A. Red Otto Mozer, Shame Kisser, This Year, and others.</em><br />
 Usually in the Safe server bc 18+ is smaller in size and I don't often go there unless too many people are in my favorite spot at spawn.<br />
 <br />
@@ -7,4 +7,4 @@ Usually in the Safe server bc 18+ is smaller in size and I don't often go there 
 ~<b>Regretevator & Nullscape IWEC. Old Gnarpy, Infected, and Operator cosplayers are BLOCKED ON SIGHT regardless of the user.</b> If you frequent the roblox area and I have you blocked, this is the most likely reason why.<br />
 ~I shouldn't have to say this but please respect the wishes of people who have DNI, DNT, or similar in their names.<br />
 ~C+H is totally fine most of the time if possible! No need to ask first, and in the chance that I <em>do</em> have a problem, I'll tell you.<br />
-<em>I'm fine with all sourcemate interaction (which includes Rae doubles) and I'll be REALLY happy if Claire ponies sit with me :^)</em>
+<em>I'm fine with most sourcemate interaction (Includes Rae doubles, Excludes kins from IWEC games) and I'll be REALLY happy if Claire ponies sit with me :^)</em>
