@@ -1,5 +1,5 @@
 ## Hi !! I'm a Rae Taylor kin (among others) and I'm often at Spawn or Roblox area :^)
-<em>Other common ponies: Red Otto Mozer, Shame Kisser, This Year, Failure.</em><br />
+<em>Other recently used ponies: the holic, Shame Kisser, This Year, Failure.</em><br />
 Usually in the Safe server bc 18+ is smaller in size and I don't often go there unless too many people are in my favorite spot at spawn.<br />
 <br />
 <img width="1000" height="500" alt="Rae and Claire walking together with a parasol." src="https://64.media.tumblr.com/ff165bbdbf760e6bfc55018e5b2c5785/1c383750d727ebd7-60/s1280x1920/1a13b5bf8e0e7eaee0d7727b2858513cceff2bbe.png" /><br />
