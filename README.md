@@ -1,5 +1,5 @@
 ## <em>"Painted fingers tapping on cherry..."</em>
-Hihi !! You can call me Rae if you wanna! I'm most commonly at Spawn or the Roblox area, and my two main ponies are Mariya Shidou and Rae Taylor (The latter I'm a fictionkin of!) I like writing fanfics, so that's the highest likely reason for me to be offtab.<br />
+Hihi I'm Litany! I'm most commonly at Spawn or the Roblox area, and my two main ponies are Mariya Shidou and Rae Taylor (The latter I'm a fictionkin of!) I like writing fanfics, so that's the highest likely reason for me to be offtab.<br />
 <em>Other ponies I often tend to use: Red Otto Mozer, Shame Kisser, This Year, Failure.</em><br />
 I'm usually in the Safe server bc 18+ is smaller in size and I don't often go there unless too many people are in my favorite spot at spawn.<br />
 <br />
